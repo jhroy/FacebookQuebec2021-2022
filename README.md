@@ -16,7 +16,7 @@ Les médias en cause sont notamment&nbsp;:
 
 * [*L'actualité*](https://www.facebook.com/lactualite)
 * [CTV Montreal](https://www.facebook.com/ctvmontreal)
-* Les journaux de Trium Médias*nbsp;:
+* Les journaux de Trium Médias&nbsp;:
   * [*L'Étoile du Lac*](https://www.facebook.com/letoiledulac)
   * [*Le Lac Saint-Jean*](https://www.facebook.com/lelacstjean)
   * [*Nouvelles Hebdo*](https://www.facebook.com/Nouvelleshebdo)
